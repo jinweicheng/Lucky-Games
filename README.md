@@ -17,7 +17,7 @@ Lucky Games | Slot Machine, Roulette Wheel & Holiday Games | Free Online Random 
 
 ## Website
 
-(website)![https://commontools.top/luckyGames}
+(website)![https://commontools.top/luckyGames]
 
 #### Wheel
 
