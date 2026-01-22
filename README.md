@@ -21,12 +21,23 @@ Lucky Games | Slot Machine, Roulette Wheel & Holiday Games | Free Online Random 
 
 #### Wheel
 
+![Lucky Games _ Slot Machine, Roulette Wheel   Holiday Games _ Free Online Random Selector - Google Chrome 2026-01-21 13-49-47 (1)](https://github.com/user-attachments/assets/fc9ef9cd-d4a4-43e7-86d7-015399969b69)
+
 
 #### Slot Machine
 
+![Lucky Games _ Slot Machine, Roulette Wheel   Holiday Games _ Free Online Random Selector - Google Chrome 2026-01-21 13-57-47 (1)](https://github.com/user-attachments/assets/ce48fe21-9467-43f0-b82e-75b446c679d7)
+
+
 #### Grid Lottery
 
+![Lucky Games _ Slot Machine, Roulette Wheel   Holiday Games _ Free Online Random Selector - Google Chrome 2026-01-21 14-00-03 (1)](https://github.com/user-attachments/assets/709ab243-4fb9-42b5-9436-278df2256828)
+
+
 #### Card Flip
+
+![Lucky Games _ Slot Machine, Roulette Wheel   Holiday Games _ Free Online Random Selector - Google Chrome 2026-01-21 14-00-22 (1)](https://github.com/user-attachments/assets/7de2d038-82de-4250-abc8-7b97bbae90d9)
+
 
 #### Scratch Card
 
